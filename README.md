@@ -1,2 +1,2 @@
 # Labs
-Out of Class Labs
+Out of Class Labs: *Soon to Come*
